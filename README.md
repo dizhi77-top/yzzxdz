@@ -12,7 +12,7 @@
 ### 🌐 **快速访问入口**  
 我们为您提供了多个便捷的链接入口，您可以通过以下快速链接直接访问所需的资源页面，让您的每一次访问都更加高效：
 
-- ❤️ 最新发布页https://www.dizhi88.top 
+- ❤️ 最新发布页：https://www.dizhi88.top 
 - ❤️ [官方网站](https://app.dizhi88.top)  
 - ❤️ [备用地址](https://官网.dizhi88.top/)  
 - **永久更新页面**：[点击前往](https://wangjidizhi.com)  
